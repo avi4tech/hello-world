@@ -2,14 +2,6 @@ hello world
 
 hi how r u?
 
+microsoft oracle goold
 
-
-uuuuuu
-
-jkhhkhkj
-
-7y8878907890jlko
-
-uhkhkhkhk
-
-gkhkhkhiy
+which is the best.
